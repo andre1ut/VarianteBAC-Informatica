@@ -1,1 +1,0 @@
-# VarianteBAC-Informatica
